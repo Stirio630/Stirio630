@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Stirio630
 - 👀 I’m interested in penetration testing and technology in general
 - 🌱 I’m currently learning ICT
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on with any sort of same vybz
 
 
 <!---
